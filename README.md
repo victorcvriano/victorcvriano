@@ -5,6 +5,6 @@ My name is Victor, although some people know me as 20 (Vinte / ***ˈvĩ.t͡ʃi**
 
 🧩 I am very interested in contributing with the open source community, as well as integrating with people of color in tech.
 
-🌐 I used to upload my early steps in data at [my Kaggle profile](https://kaggle.com/victorcvriano), but my latest stuff is uploaded right here. You can reach me by [email](mailto:victorcvriano@gmail.com)( também falo português! / je parle français aussi! ), [LinkedIn](https://linkedin.com/in/victorcvriano) or [Polywork](poly.work/victorcvriano).
+🌐 I used to upload my early steps in data at [my Kaggle profile](https://kaggle.com/victorcvriano), but my latest stuff is uploaded right here. You can reach me by [email](mailto:victorcvriano@gmail.com) ( também falo português! / je parle français aussi! ), [LinkedIn](https://linkedin.com/in/victorcvriano) or [Polywork](poly.work/victorcvriano).
 
 🎧 By the way, I am also very interested in videogames and music. Talking about the later, I am always updating my playlists on [Spotify](https://open.spotify.com/user/victorcvriano). Sometimes I also upload some beats and setlists in [my Soundcloud page](https://soundcloud.com/20do100tro).
